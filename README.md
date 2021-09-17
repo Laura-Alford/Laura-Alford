@@ -9,4 +9,3 @@ Here are some things i've been working on:
 - 📫 How to reach me: ... Shoot me a [message](https://www.linkedin.com/in/laura-alford-26b99340/)
 - 😄 Pronouns: ... She/Her/Hers
 - ⚡ Fun fact: ... The closest state in the United States to Africa is Maine
--->
