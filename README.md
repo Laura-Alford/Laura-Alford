@@ -1,3 +1,5 @@
+![Gif](https://github.com/Laura-Alford/Laura-Alford/blob/main/high_speed_internet.gif)
+
 ### Hi there 👋
 
 Here are some things i've been working on:
